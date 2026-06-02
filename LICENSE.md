@@ -1,4 +1,4 @@
-# 
+# Principal sandwich attack bot complementos para Mac OS | Profesional sandwich attack bot complementos para PC Windows. Con escaneo de arbitraje y auditorías de seguridad — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
